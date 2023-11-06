@@ -8,4 +8,4 @@
 
 💞️ I’m looking forward to collaborate on exciting projects! Let's connect,
 
-📫 You can reach me via "ozkayamuberr1997@gmail.com" or my linked|n account => "www.linkedin.com/in/müberra-özkaya-860734135"
+📫 You can reach me via "ozkayamuberr1997@gmail.com" or my linked|n account => "www.linkedin.com/in/ozkymuberra"
